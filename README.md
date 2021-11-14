@@ -7,4 +7,6 @@
 - 📫 How to reach me: g.ebenezer.miranda@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm Argentine
--->
+
+Languages and Tools:
+
